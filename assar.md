@@ -1,0 +1,1 @@
+O filé há de ser cortado em fatias delgadas, da espessura do dedo minguinho de uma criança de sete anos de idade. Se você não tem criança de sete anos de idade em casa, peça uma emprestada ao vizinho. Ou procure no Google, o Google tudo sabe. Ah: é fundamental que o filé seja fatiado na direção das fibras.
